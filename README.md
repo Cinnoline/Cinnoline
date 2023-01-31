@@ -1,4 +1,4 @@
-😅-When will the Killrude's On the Team purchased?
+😅-When will Killrude's <i>On the Team</i> purchased?
 
 
 
