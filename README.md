@@ -1,4 +1,20 @@
-😅-When wili the Killrude's On the Team purchased?
+😅-When will the Killrude's On the Team purchased?
+
+
+
+                      🀎🀎🀈🀚🀚🀚🀖🀓🀂
+               🀂                           🀈
+               🀄                           🀍
+               🀇                           🀍
+               🀋                           🀏
+               🀎                           🀓
+               🀛                           🀗
+               🀜                           🀗
+               🀞                           🀕
+               🀞                           🀡
+               🀐                           🀀
+               🀅                           🀀
+                    🀘🀘🀘🀕🀕🀟🀟🀙🀋🀈🀃
  
 <!---
 Cinnoline/Cinnoline is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
